@@ -1,2 +1,2 @@
 # yuh
-what the dog doin
+what the dog doing
